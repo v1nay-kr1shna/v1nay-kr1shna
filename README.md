@@ -4,4 +4,4 @@
 - 💞️ I’m working as Cloud Engineer
 - 📫 How to reach me? - mail at k.vinay1@protonmail.com
 
-Thanks for visiting my profile.
+Thanks for visiting my profile
